@@ -21,7 +21,7 @@
 
 <p align="center">extra info 
 
-<p align="center"> main f/os are Asmodeus and Barbatos from Obey Me, I don’t mind doubles. I’m very likely autistic, so please be understanding.
+<p align="center"> main f/o is Asmodeus from Obey Me and Haruki from Given, I don’t mind doubles. I’m very likely autistic, so please be understanding.
 
 I am a HUGE fan of Kami and Tetsu from Malice Mizer!! Also luv Sena from JILUKA ! Heavily adore old-school vkei.
 
