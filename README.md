@@ -15,7 +15,7 @@
 
 <p align="center">interests
 
-<p align="center">  Obey Me!  , Malice Mizer , Visual Kei ,  Adopt Me  ,  Danganronpa </p>
+<p align="center">  Obey Me!  , Malice Mizer , Visual Kei ,  Adopt Me  ,  Danganronpa , Given </p>
 
 ![Alt Text](https://i.postimg.cc/dtz8MdVY/IMG-0236.png)
 
